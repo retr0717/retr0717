@@ -1,5 +1,5 @@
 # 💫 About Me:
-👯 I’m looking to collaborate on projects of any stack<br>💬 Ask me about web3<br>⚡ Fun fact
+👯 I’m looking to collaborate on projects of any stack<br>💬 Ask me about web3<br>
 
 
 ## 🌐 Socials:
